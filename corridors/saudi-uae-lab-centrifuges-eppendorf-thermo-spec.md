@@ -1,0 +1,2 @@
+# Saudi/UAE Medical Lab Robotics Pipeline
+Full engineering handbook: [Eppendorf & Thermo Fisher USA to Saudi Arabia & UAE Guide 2026](https://aqxlogistics.com/blog/eppendorf-thermo-fisher-usa-to-saudi-arabia-uae-medical-lab-centrifuges-robotic-pipetting-guide-2026)
