@@ -1,0 +1,2 @@
+# Australia/NZ Marine Hydraulics Pipeline
+Full engineering handbook: [Bennett Marine & SeaStar USA to Australia & New Zealand Guide 2026](https://aqxlogistics.com/blog/bennett-marine-seastar-usa-to-australia-new-zealand-hydraulic-trim-tabs-steering-guide-2026)
