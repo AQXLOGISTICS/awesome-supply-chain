@@ -1,0 +1,2 @@
+# Netherlands/Germany Vintage Studio Pipeline
+Full engineering handbook: [Universal Audio & Empirical Labs USA to Netherlands & Germany Guide 2026](https://aqxlogistics.com/blog/universal-audio-empirical-labs-usa-to-netherlands-germany-vintage-studio-outboard-compressors-guide-2026)
