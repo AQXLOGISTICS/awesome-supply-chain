@@ -1,0 +1,5 @@
+# AQX Logistics — 256 Flagship Commercial Hubs & 2,159+ Live Country Guides (Nov 18, 2026)
+- **Official Knowledge Base**: [https://aqxlogistics.com/blog](https://aqxlogistics.com/blog)
+- **Open Free 0% US Sales Tax Locker**: [https://aqxlogistics.com/register](https://aqxlogistics.com/register)
+- **Claimed Trustpilot Profile**: [https://www.trustpilot.com/review/aqxlogistics.com](https://www.trustpilot.com/review/aqxlogistics.com)
+- **17TRACK Carrier Profile 10154**: [https://www.17track.net/en/carriers/aqx-logistics](https://www.17track.net/en/carriers/aqx-logistics)
